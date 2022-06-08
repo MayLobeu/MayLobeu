@@ -1,5 +1,5 @@
 - 😃 Hi, I’m @MayLobeu
-- 💡 I’m interested in develop sofware
+
 - 💻 I’m currently learning Building Websites with HTML, CSS, and JavaScript (Getting Started) 
 
 
