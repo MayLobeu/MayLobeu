@@ -1,6 +1,6 @@
 ### Hi, I'm Mayara Lobeu
 
-💻  Who just turned 30 and decided to start my professional life over - at the moment I'm studying "cracking my head" about how programming works. (languages and logic);
+💻  Who just turned 30 and have decided to start professional life over - at the moment I'm studying "cracking my head" about how programming works. (languages and logic);
 
 🙆🏻‍♀️  Pronouns: She/Her 
 
