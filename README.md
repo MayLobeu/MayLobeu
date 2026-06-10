@@ -1,4 +1,4 @@
-### Hi, I'm Mayara Lobeu
+### Hi, I'm May
 
 💻  Who just turned 30 and have decided to start professional life over - at the moment I'm studying "cracking my head" about how programming works. (languages and logic);
 
